@@ -1,1 +1,1 @@
-# Volkspartij voor Veel Doden
+# Volkspartij van Veel Doden
